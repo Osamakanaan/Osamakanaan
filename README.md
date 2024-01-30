@@ -14,7 +14,7 @@ I’m Osama Kanan
 
 🔹Currently doing YouTube.
 
-🔹 Best way to reach me is by [email](osamakanaan593@gmail.com) or [LinkedIn](https://www.linkedin.com/in/osama-kanaan-986351181/overlay/about-this-profile/)
+🔹 Best way to reach me is by [Email](osamakanaan593@gmail.com) or [LinkedIn](https://www.linkedin.com/in/osama-kanaan-986351181/overlay/about-this-profile/)
 
 <!---
 Osamakanaan/Osamakanaan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
